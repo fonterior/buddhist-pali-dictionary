@@ -750,7 +750,7 @@
 
 **КУ:**
 1. **Как учитель** — в DN 16 Будда перед париниббаной наставляет монахов: «Будьте светильниками сами себе (attadīpā viharatha)».
-2. **Девять качеств Будды** — в каноне часто перечисляются: iti'pi so bhagavā arahaṃ sammāsambuddho vijjācaraṇasampanno sugato lokavidū anuttaro purisadammasārathi satthā devamanussānaṃ buddho bhagavā.
+2. **Девять качеств Будды** — в каноне часто перечисляются: iti'pi so bhagavā arahaṃ sammāsambuddho vijjācaraṇasampanno sugato lokavidū anuttaro purisadammasārathi satthā devamanussānaṃ buddho bhagavā. Поистине, Благословенный — арахант, всецело и совершенно пробуждённый, совершенный в знании и поведении, шедший благим путём, знаток миров, непревзойдённый наставник существ, подлежащих укрощению, учитель богов и людей, Будда, Благословенный.
 3. **Человек, не бог** — Будда подчёркивал, что он человек, достигший пробуждения через собственные усилия.
 
 **КЦ:**
